@@ -9,4 +9,13 @@ In Devil May Cry 5, there are four playable characters. Those Characters are Dan
 
 ![](https://i.ytimg.com/vi/YVPKoh-6bJo/maxresdefault.jpg)
 
-Dante as you can see, has an entire arsenal of guns, swords, a motorcycle, a cowboy hat, four different guns, a huge sword, and a set of armor that is placed on his feet and hands that specializes in close hand combat.
+**Dante** as you can see, has an entire arsenal of guns, swords, a motorcycle, a cowboy hat, four different guns, a huge sword, and a set of armor that is placed on his feet and hands that specializes in close hand combat.
+
+**Dante's**
+main weapons are his sword, and his two pistols named *Ebony* and *Ivory*.
+
+**Sin Devil Trigger**
+
+![](https://static.wikia.nocookie.net/devilmaycry/images/1/1e/Sin_Devil_Triger_35.jpg/revision/latest?cb=20190503024738)
+
+Dante has a special move called **Sin Devil Trigger**, hee transforms into this demon like form and gets stronger just like any power up. In the game, you can only use it when you have added to your **Sin Devil Trigger** bar by fighting other demons.
