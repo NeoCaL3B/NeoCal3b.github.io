@@ -21,3 +21,6 @@ main weapons are his sword, and his two pistols named *Ebony* and *Ivory*.
 ![](https://static.wikia.nocookie.net/devilmaycry/images/1/1e/Sin_Devil_Triger_35.jpg)
 
 Dante has a special move called **Sin Devil Trigger**, hee transforms into this demon like form and gets stronger just like any power up. In the game, you can only use it when you have added to your **Sin Devil Trigger** bar by fighting other demons.
+
+Here is a combo in the game ***Credits to Rvivddead***.
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aC8hmalDkvc?si=hl3nHjEPfXqtozp-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
